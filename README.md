@@ -13,5 +13,9 @@ Equipos de Data & Analytics que buscan profesionales con visión clínica
 Recruiters y managers en empresas de salud, logística y supply chain
 Compañías interesadas en optimizar inventarios, procesos de auditoría y reporting financiero
 
+Idiomas que hablo: 
+1. Ingeles Avanzado
+2. Frances 
+
 🔗 Conecta conmigo
 www.linkedin.com/in/maria-camila-uribe-841118199 Email: camiuribe28@gmail.com
